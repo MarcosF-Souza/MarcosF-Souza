@@ -41,7 +41,7 @@ Acredito que a prática constante é a melhor forma de aprendizado — por isso 
 ## 📫 Contato
 
 📧 Email: **marcosfsouza.dev@gmail.com**  
-💼 LinkedIn: 💼 LinkedIn: https://www.linkedin.com/in/marcossouza0/
+💼 LinkedIn: https://www.linkedin.com/in/marcossouza0/
 
 ---
 
